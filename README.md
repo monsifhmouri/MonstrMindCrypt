@@ -62,4 +62,5 @@ Developed by **Mr. MØNSTR-M1ND — 2025**
 
 **Mr. MØNSTR-M1ND**  
 2025 
+
 PASWWD IS : fuckyou
