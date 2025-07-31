@@ -61,4 +61,6 @@ Developed by **Mr. MØNSTR-M1ND — 2025**
 ## 👤 Developer
 
 **Mr. MØNSTR-M1ND**  
-2025
+2025 
+PASWWD IS : fuckyou
+ححp
